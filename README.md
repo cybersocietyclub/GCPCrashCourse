@@ -4,7 +4,7 @@ Landing page for #GCPCrashCourse
 ## Tracks and their quest 
 http://bit.ly/gcptrack
 
-# For ML Track 
+## For ML Track 
 http://bit.ly/nuvgcpdata
 
 ## For Data Track
