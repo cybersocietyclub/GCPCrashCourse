@@ -15,3 +15,5 @@ http://bit.ly/nuvgcpapp
 
 ## For Feedback and swags request form
 http://bit.ly/nuvgcpreport   (Please Fill This only After You Complete the track to avoid rejection)
+
+## Last Date For Completion is 31st October.
