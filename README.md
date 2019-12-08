@@ -17,3 +17,6 @@ http://bit.ly/nuvgcpapp
 http://bit.ly/nuvgcpreport   (Please Fill This only After You Complete the track to avoid rejection)
 
 ## Last Date For Completion is 31st October.
+
+## Schwags will be dispatched to repective leads by the end of December
+### Please contact your respective leads in the last week of December or start of January
