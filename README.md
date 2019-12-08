@@ -18,5 +18,5 @@ http://bit.ly/nuvgcpreport   (Please Fill This only After You Complete the track
 
 ## Last Date For Completion is 31st October.
 
-## Swachgs will be dispatched to repective leads by the end of December
+## Schwags will be dispatched to repective leads by the end of December
 ### Please contact your respective leads in the last week of December or start of January
